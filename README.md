@@ -2,7 +2,7 @@
 - 👀 I’m interested in Programming
 - 🌱 I’m currently learning Software Development
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
+- 📫 How to reach me : Never try to reach me😉
 - 😄 Pronouns: Imtiaz
 - ⚡ Fun fact: Mad
 
